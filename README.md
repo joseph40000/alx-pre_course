@@ -1,1 +1,3 @@
-**My life path**
+**My life path.**
+
+**I am committed to this.**
